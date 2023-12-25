@@ -1,2 +1,2 @@
-# sinmb79
+# B22
 bitgold20171115
